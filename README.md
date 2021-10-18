@@ -2,7 +2,7 @@
 
 
 
-<img align="left" width="270"  src="https://media3.giphy.com/media/hENDkVRxKsctCpuAun/200w.webp?cid=ecf05e47uocrsi7fk9wojj8rewr0aztrpkjd1e62bjky22r9&rid=200w.webp&ct=g" />
+<img align="left" width="260"  src="https://www.imagensanimadas.com/data/media/56/computador-imagem-animada-0078.gif" />
  
 
 
