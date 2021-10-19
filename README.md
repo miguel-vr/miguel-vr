@@ -1,7 +1,7 @@
  
 ## 💻 Olá, meu nome é <strong>Miguel!</strong>
 
-> Tenho 18 anos. <br> Cursando Engenharia de Software 1/5. 
+> Tenho 18 anos. <br> Cursando Engenharia de Software 1/4. 
 
 ----
 
